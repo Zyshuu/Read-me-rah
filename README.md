@@ -7,9 +7,9 @@
             Hiya! You probably are here from my github so hi hi
 
                                My interests:
-                   I really enjoy alot lf different things, 
+                   I really enjoy alot of different things, 
                        like pjsk and hoyoverse games.
-                   I enjoy tona of different anime that 
+                   I enjoy ton of different anime that 
                               im not listing </3
                    
                               Fav characters?
